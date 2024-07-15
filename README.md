@@ -1,6 +1,6 @@
 Introducing our revolutionary Free TikTok Coins Generator! 🎉💰 With this powerful tool, you can now unlock unlimited TikTok coins and elevate your TikTok experience to new heights! 🌟 Boost your popularity
 
-**[🌐 CLICK HERE TO Get Free Coins On TIKTOK 👈👈]([https://telegra.ph/tiktok-07-15))**
+**[🌐 CLICK HERE TO Get Free Coins On TIKTOK 👈👈](https://telegra.ph/tiktok-07-15)**
 
 **[🌐 CLICK HERE TO Get Free Coins On TIKTOK 👈👈](https://telegra.ph/tiktok-07-15)**
 
